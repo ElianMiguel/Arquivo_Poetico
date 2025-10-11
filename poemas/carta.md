@@ -1,6 +1,6 @@
 # Carta
 
-As palavras estavam em minha minha mente,\
+As palavras estavam em minha mente,\
 E em outro lugar não estariam,\
 Porque elas eram minhas.\
 O dicionário também as continha,\
