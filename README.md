@@ -6,4 +6,4 @@ as alterações serão descritas neste README.
 não é o objetivo principal do repositório.
 
 **Lista de Poesias:**
-- Por enquanto, vazio.
+- Voo dos Pássaros
