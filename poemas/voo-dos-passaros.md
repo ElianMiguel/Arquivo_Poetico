@@ -3,17 +3,17 @@
 Tal assim é o voo dos pássaros,\
 Que tão livres conseguem voar,\
 Correm, então, aos seus ninhos,\
-Livres, encontram seu lar,\
+Livres, encontram seu lar,
 
 Voa, ó pássaro, voa!\
 Busca, então, seu caminho,\
 Canta por entre o vento,\
-Vai, pássaro, ao seu ninho!\
+Vai, pássaro, ao seu ninho!
 
 Óh!-digo-quão é bonito\
 Do pássaro o belo cantar,\
 E canta, então, a alegria\
-Do voo que vai ao seu lar!\
+Do voo que vai ao seu lar!
 
 Quem me dera concedesse Deus\
 Deste canto experimentar,\
