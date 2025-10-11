@@ -7,3 +7,4 @@ não é o objetivo principal do repositório.
 
 **Lista de Poesias:**
 - Voo dos Pássaros
+- Chuva de verão
