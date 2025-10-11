@@ -40,7 +40,7 @@ As palavras estavam em mim,\
 E só em mim permaneceriam,\
 Quão longa deve ser a espera?\
 De outono a outono, primavera a primavera?\
-E eu comecei a escrever uma carta.\
+E eu comecei a escrever uma carta.
 
 A minha carta continha o silêncio,\
 Enquanto eu tinha todas as palavras,\
