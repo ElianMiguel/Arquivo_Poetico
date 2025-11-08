@@ -36,7 +36,7 @@ As mesmas que seguravam o papel...\
 Meu doce amargor.
 
 Os ônibus estavam lá na rua,\
-Os Ônibus estavam lá no monte,\
+Os ônibus estavam lá no monte,\
 E, passo a passo, eu continuava subindo,\
 Subia pensando na descida,\
 Havia flores na terra,\
