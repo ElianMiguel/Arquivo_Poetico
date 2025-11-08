@@ -9,3 +9,6 @@ não é o objetivo principal do repositório.
 - Voo dos Pássaros
 - Chuva de verão
 - Carta
+- Meu doce amargor
+- Nobre livro
+- Ser humano
